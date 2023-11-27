@@ -1,1 +1,1 @@
-Hi I student at Atatürk University Computer Engineering  in Turkey
+I am studying Computer Engineering at Atatürk University in Turkey
